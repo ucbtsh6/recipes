@@ -1,4 +1,10 @@
+anatomy
+ddarwinbuilding
+shaimaa
+ahmed
 orange 
+strawberry
+guava
 apple 
 xvvvv£fftws
 hfhtyuytjmhgooosy
